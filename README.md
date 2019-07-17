@@ -1,1 +1,0 @@
-# tahminasathi.github.io
